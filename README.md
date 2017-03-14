@@ -23,7 +23,7 @@
 
 链接：http://pan.baidu.com/s/1qXSKZP64 密码：dwie
 
-林轩田：機器學習技法 (Machine Learning Techniques)
+林轩田：机器学习技法 (Machine Learning Techniques)
 
 链接：http://pan.baidu.com/s/1i5I0kZj3 密码：zwce
 
